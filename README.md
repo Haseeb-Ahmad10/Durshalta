@@ -1,0 +1,1 @@
+Durshalta is an online Delivery service that offers a seamless experience for ordering food and essential items. Enjoy a wide range of options, from delicious meals to everyday necessities, all delivered swiftly to your doorstep. With Durshalta convenience is guaranteed, making your life easier and more enjoyable with every order
